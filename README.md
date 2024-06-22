@@ -1,0 +1,5 @@
+INTEGRANTES 
+-Frank Eduardo Calcina Arias
+-Alejandro Alfredo Salazar Guillen
+-Diego Alonzo Zeballos Huayna
+-Gino Sebastian Diaz Neyra
